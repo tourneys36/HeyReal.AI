@@ -2,7 +2,7 @@
 
 Looking to get the most out of HeyReal AI without breaking the bank? You’re in luck! The platform’s HeyReal Bonus Program lets users earn free coins for messages and items, while today’s top promo code slashes prices by **20% off**. Here’s everything you need to know to save big and enjoy premium features for less.
 
-[**Best HeyReal AI Deal Is 25% OFF**](https://go.sjv.io/4G2GLG)
+[**Best HeyReal AI Deal Is 25% OFF**](https://github.com/tourneys36/)
 
 ![Screenshot 2025-05-24 035634](https://github.com/user-attachments/assets/51d16f5c-1116-424a-8b5d-46cd59f6603d)
 
@@ -21,21 +21,21 @@ Whether you’re a frequent user or just getting started, this program adds valu
 
 **Today’s Best Deal: 20% Off with HeyReal AI’s Top Promo Code**
 
-Right now, the **[biggest discount available is a 20% off coupon](https://go.sjv.io/4G2GLG)**, perfect for new users or anyone upgrading their plan. Here’s why you should act fast:
+Right now, the **[biggest discount available is a 20% off coupon](https://github.com/tourneys36/)**, perfect for new users or anyone upgrading their plan. Here’s why you should act fast:
 
-- Instant savings: [Apply the code](https://go.sjv.io/4G2GLG) at checkout for immediate discounts on subscriptions or purchases.
+- Instant savings: [Apply the code](https://github.com/tourneys36/) at checkout for immediate discounts on subscriptions or purchases.
 - Verified and updated: The codes showcased at the top of HeyReal’s promo page are rigorously checked to ensure they’re active and offer the best value.
 
-Simply head to [HeyReal AI’s website](https://go.sjv.io/4G2GLG), navigate to the promotions section, and enter the code during checkout. New deals often drop seasonally or during special events, so check back regularly!
+Simply head to [HeyReal AI’s website](https://github.com/tourneys36/), navigate to the promotions section, and enter the code during checkout. New deals often drop seasonally or during special events, so check back regularly!
 
 **How to Stay Ahead of the Savings Curve**
 
-- Bookmark the promo page: The [top banners always display the latest and most lucrative codes.](https://go.sjv.io/4G2GLG)
+- Bookmark the promo page: The [top banners always display the latest and most lucrative codes.](https://github.com/tourneys36/)
 - Join newsletters or alerts: Get notified about flash sales or bonus coin opportunities.
 - Stack rewards: Use your free coins and promo codes together (if allowed) to maximize value.
 
 **Don’t Miss Out—Act Now!**
 
-With free coins reducing your costs and a [**limited-time 20% off coupon**](https://go.sjv.io/4G2GLG) up for grabs, there’s never been a better time to dive into HeyReal AI’s services. Whether you’re after advanced features, extended messaging, or premium tools, these savings make it all more accessible.
+With free coins reducing your costs and a [**limited-time 20% off coupon**](https://github.com/tourneys36/) up for grabs, there’s never been a better time to dive into HeyReal AI’s services. Whether you’re after advanced features, extended messaging, or premium tools, these savings make it all more accessible.
 
-Pro tip: Coupons can expire quickly, so grab the [**20% off deal today**](https://go.sjv.io/4G2GLG) and start earning those bonus coins! **Visit HeyReal AI’s website now** to claim your discounts before they’re gone.
+Pro tip: Coupons can expire quickly, so grab the [**20% off deal today**](https://github.com/tourneys36/) and start earning those bonus coins! **Visit HeyReal AI’s website now** to claim your discounts before they’re gone.
